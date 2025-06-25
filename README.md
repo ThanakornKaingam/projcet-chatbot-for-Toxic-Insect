@@ -1,4 +1,4 @@
-# ทีม Level Up
+# ทีม Level up
 
 ## 👥 Team Members
 
